@@ -1,1 +1,1 @@
-![image](https://user-images.githubusercontent.com/1287098/234396316-d8112456-1a4e-4ac0-92ad-305f88f6f565.png)
+![Group 2717](https://github.com/os-scar/.github/assets/1287098/088bc73f-2976-4116-80ba-f9c5bb7b989b)
